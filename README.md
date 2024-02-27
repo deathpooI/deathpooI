@@ -1,7 +1,7 @@
-<p align="center">
+<div align="center">
   
 [HELP PALESTINE](https://arab.org/click-to-help/palestine/)
-</p>
+</div>
 
 <p align="center">
 <img src="https://64.media.tumblr.com/64084f352d1664758e1a4febcb0e4464/8ac72bb49761ea20-51/s400x600/2edbc1b4ec645da62398e2bb65b62e2ade5eb3f7.gifv"/>
