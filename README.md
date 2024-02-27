@@ -7,7 +7,7 @@ HELP PALESTINE https://arab.org/click-to-help/palestine/
 </p>
 
 <p align="center">
-shig ── he/her ── polish
+$${\color{red}shig ── he/her ── polish}$$
 </p> 
 
 <p align="center">
