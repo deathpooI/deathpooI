@@ -3,7 +3,7 @@ HELP PALESTINE https://arab.org/click-to-help/palestine/
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/c6431ddc34a9f462447077e6ee143be7/e3b5b0501b44053f-57/s500x750/0e989733d6a7b8b6db060f497386f1c722d15e8f.pnj"/>
+<img src="https://64.media.tumblr.com/64084f352d1664758e1a4febcb0e4464/8ac72bb49761ea20-51/s400x600/2edbc1b4ec645da62398e2bb65b62e2ade5eb3f7.gifv"/>
 </p>
 
 <p align="center">
@@ -22,5 +22,5 @@ shig ── he/her ── polish
 
 
 <p align="center">
-<img src="https://64.media.tumblr.com/05036dec81dfdbf8867a7e9f956b93f5/e3b5b0501b44053f-81/s500x750/1af096f25d7c3a00087823039f774e1bc6a15d68.pnj"/>
+<img src="https://64.media.tumblr.com/8a0df5cae3dfa9810c00b2680e4b4880/35fbcfdf36fee627-7c/s400x600/ce6f0389f190ccb88eb28d70aba1e3b91bf6cc16.png"/>
 </p>
