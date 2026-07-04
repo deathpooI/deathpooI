@@ -1,10 +1,11 @@
-ㅤㅤㅤㅤㅤㅤ  <img align="left" width="160" height="50" alt="image" src="https://file.garden/ad7E6gx5M13uwG93/huh.png" />    <img align="left" width="70" height="70" alt="image" src="https://file.garden/ad7E6gx5M13uwG93/spky.webp" />
+<img align="left" width="160" height="50" alt="image" src="https://file.garden/ad7E6gx5M13uwG93/huh.png" />    <img align="left" width="70" height="70" alt="image" src="https://file.garden/ad7E6gx5M13uwG93/spky.webp" />
 
-<br>
+
 
 <img align="left" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z121_20260703225334.png" alt="image" width="405" />
 
-
+<h5 align="center">
+ 
 $${\color{#FB9F99}tsukii}$$ $${\color{#F4FDDA}!!}$$ $${\color{#C0F3DA}8teen;}$$ $${\color{#BFE2FF}she}$$ $${\color{#814AD9}/}$$ $${\color{#E0DBFF}her}$$ ㅤ</br>
 
 $${\color{#577DDA}✦}$$ ㅤ</br>
@@ -17,12 +18,12 @@ $${\color{#75D668}around.}$$ $${\color{#50D2C7}feel}$$ $${\color{#4ECADB}free}$$
 
 $${\color{#BE2B2A}if}$$ $${\color{#D74735}i}$$ $${\color{#F28545}dont}$$ $${\color{#E4E666}respond}$$ $${\color{#67CA56}to}$$ $${\color{#50D2C7}messages}$$  $${\color{#4C97D5}very}$$  $${\color{#5870DA}quickly}$$  $${\color{#AE43D6}im}$$  $${\color{#9235b5}afk}$$  $${\color{#6b2c9c}or}$$  $${\color{#9c2c97}offtab}$$ㅤ</br>
 
-
+</h5>
 
  <a href="https://tsukkiii.atabook.org/"><img align="left" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z125_20260704033631.png" width="400" height="auto"/></a>
 
 
-<br>
+
 
 ㅤㅤㅤㅤㅤㅤㅤ`art from . yuniUoU on twt!! `
 
